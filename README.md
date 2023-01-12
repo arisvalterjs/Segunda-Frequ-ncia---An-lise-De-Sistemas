@@ -1,0 +1,1 @@
+# Segunda-Frequ-ncia---An-lise-De-Sistemas
